@@ -10,3 +10,7 @@ He sold every possession he has, the car the house everything and decided to buy
 One his way to Tibet the bitcoin skyrocketed.
 When he arrived in Tibet and could connect with the local wifi he realized he'd become a millionaire.
 Torn between two possible lives he had to choose: The lavish life of a playboy millionaire philantropist, or the sober life of  a spiritual monk
+
+But why choosing he tought.. 
+Just as some people can be programmers and influencers
+He decided his path was to become a millionaire playboy philantropist spiritual monk
