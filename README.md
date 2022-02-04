@@ -6,3 +6,7 @@ While he was living this hermitlike way he discovered that slowly but surely his
 
 
 He sold every possession he has, the car the house everything and decided to buy a plane ticket to Tibet. He wanted to be a monk, on his way to airport he invested all his money in bitcoin from 65K. 
+
+One his way to Tibet the bitcoin skyrocketed.
+When he arrived in Tibet and could connect with the local wifi he realized he'd become a millionaire.
+Torn between two possible lives he had to choose: The lavish life of a playboy millionaire philantropist, or the sober life of  a spiritual monk
